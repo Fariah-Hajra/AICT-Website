@@ -1,1 +1,1 @@
-Interactive wesite for crochet lovers
+Interactive and responsive website for crochet lovers
